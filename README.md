@@ -10,6 +10,6 @@ chmod 777 LKINGOP
 
 ./LKINGOP
 ```
-#Cradit By Qsr & Hanan 💋
+# Cradit By Qsr & Hanan 💋
 
-#Enjoy Fucked Tools No Data loss
+# Enjoy Fucked Tools No Data loss
